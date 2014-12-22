@@ -35,8 +35,14 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Iniunctions giuen by the Reuerend Father in Christ John by Gods prouidence, Bishop of Sarisburie [si
+
 #####Body#####
+
+1. Iniunctions giuen by the reuerend father in Christ Iohn, by Gods prouidence, Bishop of Sarisburie. &c.
+
+    _ ❧For the Cleargie.
+
+    _ ¶ For the Churchwardens and enquirers, commonly called the sworne men of euery Parish.
 
 **Types of content**
 
